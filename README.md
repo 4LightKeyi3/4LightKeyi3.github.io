@@ -9,3 +9,16 @@ My favorite stuff
 
 | Monday | Tuesday | Wednesday | Thursday | Friday | Saturday | Sunday |
 | ------ | ------- | --------- | -------- | ------ | -------- | ------ |
+| Adobo | Sinigang | Fried Chicken | Chicken Curry | Pesto | Hotdog | Kare-Kare |
+
+
+
+
+
+
+
+
+
+
+
+
