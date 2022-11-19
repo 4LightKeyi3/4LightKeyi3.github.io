@@ -8,17 +8,14 @@
 
 ### - As the archetypal theropod, *Tyrannosaurus* has been one of the best-known dinosaurs since the early 20th century and has been featured in film, advertising, postal stamps, and many other media.
 
-![T-Rex](https://static.wikia.nocookie.net/legendsofthemultiuniverse/images/2/29/JW_T-Rex.png/revision/latest?cb=20160330201807)
+![T-rex](https://media.thenationaldigest.com/wp-content/uploads/2020/08/17122658/T-Rex-400x400-1.jpg)
 
 ## Favorites and Hobbies:
 ### - Hunting in Groups
 ### - Eating other Dinosaurs
 ### - Eating Meat 
-### - Complaining about their arms :cry:
 
-## What made T-Rex become extinct?
-### - This extinction was probably caused by a catastrophic asteroid colliding with Earth. It is thought that a an asteroid 4-9 miles (6-15 km) in diameter hit the Earth off the coast of Mexico.
-![asteroid](https://www.enchantedlearning.com/t2gifs/toobigtofail2.GIF)
+# A video about T-Rex  
+https://user-images.githubusercontent.com/118236278/202843173-e60e3bae-6929-418e-a7a8-31ab6491291f.mp4
 
-# A video about T-Rex Dominating other Dinosaurs :crown: 
-[T-REX MAX Vs ALL CARNIVORE DINOSAURS - Jurassic World Evolution](https://youtu.be/bIU8GbpUhts)
+
