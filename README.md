@@ -1,6 +1,3 @@
-# Welcome to *4LightKeyi3.github.io*
-## My name is Rex Augustine A. Singson
-
 # **Tyrannosaurus rex(T-Rex)**
 ## Background Information
 ### - *Tyrannosaurus* is a genus of large theropod dinosaur. The species *Tyrannosaurus rex* (rex meaning "king" in Latin), often called *T. rex* or *colloquially T-Rex*, is one of the best represented theropods. *Tyrannosaurus* lived throughout what is now western North America, on what was then an island continent known as Laramidia. *Tyrannosaurus* had a much wider range than other tyrannosaurids. Fossils are found in a variety of rock formations dating to the Maastrichtian age of the Upper Cretaceous period, 68 to 66 million years ago. It was the last known member of the *tyrannosaurids* and among the last *non-avian dinosaurs* to exist before the Cretaceous–Paleogene extinction event.
