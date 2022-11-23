@@ -19,7 +19,6 @@
 | -------| ------- | --------- | -------- | ------ | -------- | ------ |
 | Meat | Meat | Dinosaur | MEAT | MEAATT | MEEEAT | Dinosaur |
 
-# A video about T-Rex  
-https://user-images.githubusercontent.com/118236278/202843173-e60e3bae-6929-418e-a7a8-31ab6491291f.mp4
+
 
 
